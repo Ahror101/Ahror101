@@ -20,7 +20,7 @@ I enjoy solving problems and bringing ideas to life on the web.
 ## 🌐 Connect with Me
 
 🔗 [My Portfolio](https://artx-one.vercel.app)  
-📸 [Instagram](https://instagram.com/YOUR_USERNAME)
+📸 [Instagram](https://instagram.com/1abdumannabovvvv)
 
 ---
 
